@@ -7,3 +7,6 @@
 //skype    live:.cid.9a654b79ec08a141
 //discord  lucaly#9244
 
+
+
+let's use telegram please, my is alexander_delphi
